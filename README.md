@@ -1,2 +1,2 @@
 # Nothing bruh
-# Is this a joke -_- (hello22222222)
+# Is this a joke -_- (hello)
